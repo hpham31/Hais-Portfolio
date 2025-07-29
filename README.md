@@ -1,1 +1,2 @@
 # Hais-Portfolio
+My name is Hai & I'm a father of two. Recently, I completed a Grad Cert in the field of IT from Griffith University, as I aspire to become a Data Analyst. I pride myself as an articulate person, with the ability for task prioritisation. I’m a personable individual who can handle constructive criticism, and I can work confidently with diverse cultures and in situations in which cultural awareness and appreciation are integral.
